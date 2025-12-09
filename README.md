@@ -39,6 +39,7 @@ Udicti is a student-led  Innovation unit at the College of Information and Commu
 - Instagram [@udicti_hub](https://www.instagram.com/udicti_hub)
 - Twitter [@udicti](https://twitter.com/udicti)
 - LinkedIn [UDICTI](https://www.linkedin.com/in/udsm-ict-incubator-udicti-3471786b/)
+- TikTok [@udicti](https://www.tiktok.com/@udicti)
 - Discord [You are invited !](https://discord.gg/hJr82bkG)
 
 ### Email
@@ -46,5 +47,5 @@ Udicti is a student-led  Innovation unit at the College of Information and Commu
 **Organization** <udictii@gmail.com>
 
 **Community Leaders**
-- @genie360s | <alexgmkwizu@gmail.com>
-- @jackkweyunga | <jacksonkweyunga@gmail.com>
+- @Sirily23 | <sirilylasway@gmail.com>
+
